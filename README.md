@@ -1,0 +1,1 @@
+# An-lisis-y-redacci-n-de-Informe-Financiero-Anual-2023-Fast-Food-SQL-Server-
